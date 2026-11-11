@@ -4,5 +4,5 @@
 * mening asosiy portfolioyim
 * mening hobbylarim
 
-##Menga bog'lanish uchun:
+## Menga bog'lanish uchun:
 dadaboyevamm@gmail.com
